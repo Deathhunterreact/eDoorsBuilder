@@ -15,3 +15,4 @@
 <img src="https://cdn.discordapp.com/attachments/953709653878014073/974350589678981171/Screenshot_1.png" width="35%">
 
  
+Preview : https://youtu.be/OJDkLxzwaGg
